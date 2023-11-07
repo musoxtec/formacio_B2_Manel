@@ -1,0 +1,1 @@
+# formacio_B2_Manel
